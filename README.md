@@ -9,10 +9,7 @@ really dunno how to introduce myself, so... here's some text that i put up just 
 
 ## ways to ~~indirectly~~ reach me.
 * [YouTube](https://youtube.com/CirqueAlvis)
-  - Schedule:
-    - Monday: Music Games
-    - Wednesday: Random/Gameplay Uploads
-    - Friday: Flash Games (Halted until personal laptop is fixed)
+  - No schedules, sorry.
     
 * [Twitch](https://twitch.com/cirquealvis)
   - no stream schedules yet
